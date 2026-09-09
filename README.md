@@ -1,1 +1,1 @@
-<img width="734" height="538" alt="image" src="https://github.com/user-attachments/assets/3bb5ad7b-ff01-45be-a506-d6372be7a73d" />
+<img width="556" height="496" alt="Recording 2026-09-09 023701" src="https://github.com/user-attachments/assets/9bd5d0c1-bdf7-4640-98c6-68805fed1f42" />
